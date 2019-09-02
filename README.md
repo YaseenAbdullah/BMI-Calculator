@@ -9,3 +9,23 @@ with this app u can easily findout your bmi
 
 ![Finished App](https://github.com/londonappbrewery/Images/blob/master/bmi-calc-demo.gif)
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+https://www.izanko.com
+https://wwww.jumlabazar.com
+https://www.shko.tech
