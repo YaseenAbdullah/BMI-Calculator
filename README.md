@@ -25,7 +25,3 @@ with this app u can easily findout your bmi
 
 
 
-
-https://www.izanko.com
-https://wwww.jumlabazar.com
-https://www.shko.tech
